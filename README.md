@@ -1,1 +1,1 @@
-# demetre-miqaberidze
+# gasartobi tamashebis saitidan wamovige tamashebis saxelebi da ganvatavse mocemul fileshi
